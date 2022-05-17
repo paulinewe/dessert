@@ -1,4 +1,4 @@
 cookies
 tea
 nutella
-gummy bears
+vegan gummy bears
